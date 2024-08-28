@@ -11,8 +11,12 @@ Aplikasi SundaDigi adalah hasil kerja sama antara Pusat Digitalisasi dan Pengemb
 Profesor Ganjar berharap bahwa SundaDigi akan menjadi bagian integral dari Universitas Padjadjaran, sesuai dengan peraturan universitas dan undang-undang yang berlaku. Selain itu, ia berharap aplikasi ini akan membantu melestarikan budaya Sunda dan mencegah hilangnya jejak warisan budaya yang berharga.
 
 Kunjungi kami di www.sundadigi.com atau download aplikasi SundaDigi melalui playstore. https://play.google.com/store/apps/details?id=com.sundadigi.android 
+
 ~ Instagram : https://www.instagram.com/sundadigi/
+
 ~ TikTok : https://www.tiktok.com/@sundadigi?lang=en
+
 ~ Tumblr : https://www.tumblr.com/sundadigi
+
 ~ Youtube : https://www.youtube.com/channel/UCXjFqFQTgu3_P283RW1qtYw/ 
 	
